@@ -24,7 +24,7 @@
 - 🤔 Saya juga mencari bantuan di stack overflow.
 - 💬 Saya menyenangi pembelajaran dengan panduan video dan praktikum mandiri.
 - 😄 : Ramah pengguna
-- ⚡ Fun fact: Saya menghabiskan waktu dengan kuliah dan mengerjakan tugas.
+- ⚡ Fun fact: Saya menghabiskan waktu 8 jam/hari dengan kuliah dan mengerjakan tugas.
 
 **Bahasa dan Alat:**  
 
